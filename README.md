@@ -1,0 +1,1 @@
+# bearstrength-vendas
